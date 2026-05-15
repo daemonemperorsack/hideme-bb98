@@ -1,4 +1,4 @@
-
+Enhance your Hide.me experience with smart Hide.me Module | VPN-over-TOR + tracker-blocker, the #1 module. Includes VPN-over-TOR and tracker-blocker for a safer and more private
 
 
 
